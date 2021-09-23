@@ -1,1 +1,0 @@
-"WEBBLOG" is a Project of a blog on technology and pandemic
